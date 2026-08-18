@@ -11,7 +11,8 @@
 > ⚠️ 本仓库**仅供学习与研究目的发布** —— 用于研究客户端侧游戏改造、ASM 字节码补丁和混淆/反混淆技术。在你不拥有的服务器上使用作弊客户端违反绝大多数服务器规则，请自行承担后果。
 
 ## 精神马来西亚人穿女装黑丝跳舞视频
-![bruh](./img/cf03f08c6d349b53b29c0f5d97a69cca.png)
+<img width="847" height="657" alt="bruh" src="https://github.com/user-attachments/assets/24e131da-345f-4d76-8e6a-52fb71886ca3" />
+
 
 ## 精神马来西亚人最新力作
 [点我跳转](https://docs.google.com/spreadsheets/d/1KZotYDgOnj8QKRSoSIT9otVLlcJ-wfVdFIF4R00Rrc8)
@@ -20,16 +21,19 @@
 原始混淆字节码未授予任何许可。本仓库中的反混淆产物、构建脚本与文档**仅供研究与学习使用**。如果你是 Zen 的原作者并希望本仓库下架或重新授权，请提 Issues。虽然提了也不会搭理你。
 
 ## 截图
-![Open Zen ClickGUI](./img/screenshot.png)
+<img width="3840" height="2088" alt="Open Zen ClickGUI" src="https://github.com/user-attachments/assets/a4d5444b-0511-447d-b41e-a9290f577211" />
+
 
 ## 精神马来西亚人
 或许是由于Zen的作者可能由于常年惨遭家暴，亦可能是由于常年沉迷于米哈游大作导致大脑退化完成义务教育后无法进行进一步的大脑升级。精神马来西亚人不得不前往马来西亚，以进一步大脑升级为高中毕业学历。在精神马来西亚人抵达马来西亚后，精神马来人似乎找到了自己的归宿。
 
-![马来西亚是我家](./img/spiritually_malay/7.jpg)
+<img width="384" height="156" alt="马来西亚是我家" src="https://github.com/user-attachments/assets/67066ca5-296b-4a4b-8636-e94ad14402d7" />
+
 
 自此，精神马来人正式成为精神马来人。开始称中国人“支那猪”，称中国[“支那”](https://zh.wikipedia.org/wiki/%E6%94%AF%E9%82%A3)。
 
 ![你们支那人](./img/spiritually_malay/1.png)
+
 
 ![你们支那人](./img/spiritually_malay/2.png)
 
