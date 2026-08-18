@@ -32,12 +32,13 @@
 
 自此，精神马来人正式成为精神马来人。开始称中国人“支那猪”，称中国[“支那”](https://zh.wikipedia.org/wiki/%E6%94%AF%E9%82%A3)。
 
-![你们支那人](./img/spiritually_malay/1.png)
+<img width="254" height="163" alt="你们支那人" src="https://github.com/user-attachments/assets/20292446-84ca-482f-8ca9-11279361242d" />
+
+<img width="299" height="346" alt="2" src="https://github.com/user-attachments/assets/edf19e24-9a5a-47e3-a1b9-f04146de822e" />
 
 
-![你们支那人](./img/spiritually_malay/2.png)
 
-![你们支那人](./img/spiritually_malay/8.jpg)
+<img width="1264" height="267" alt="8" src="https://github.com/user-attachments/assets/35501443-7305-46f2-be45-46315832653e" />
 
 除此之外，精神马来人还会发表更多奇异搞笑言论。当你购买精神马来西亚人的外挂后，你必须要阅读#rules后才可以使用其外挂，其中包括“承认台湾是一个国家”、“承认新疆、西藏、香港、澳门同样都是独立国家”等奇异搞笑言论。因此笔者很难想象其外挂用户的政治立场。
 
