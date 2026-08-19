@@ -34,56 +34,63 @@
 
 <img width="254" height="163" alt="你们支那人" src="https://github.com/user-attachments/assets/20292446-84ca-482f-8ca9-11279361242d" />
 
+
+
+
+
 <img width="299" height="346" alt="2" src="https://github.com/user-attachments/assets/edf19e24-9a5a-47e3-a1b9-f04146de822e" />
-
-
-
 <img width="1264" height="267" alt="8" src="https://github.com/user-attachments/assets/35501443-7305-46f2-be45-46315832653e" />
 
 除此之外，精神马来人还会发表更多奇异搞笑言论。当你购买精神马来西亚人的外挂后，你必须要阅读#rules后才可以使用其外挂，其中包括“承认台湾是一个国家”、“承认新疆、西藏、香港、澳门同样都是独立国家”等奇异搞笑言论。因此笔者很难想象其外挂用户的政治立场。
 
-![Rules](./img/spiritually_malay/4.jpg)
+<img width="1181" height="994" alt="4" src="https://github.com/user-attachments/assets/78e8c169-c31e-4e77-b026-a193fc0f8f7c" />
+
 
 除此之外，精神马来西亚人称惨绝人寰的[南京大屠杀](https://zh.wikipedia.org/wiki/%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%B1%A0%E6%AE%BA)事件**晦气**。
 
-![南京大屠杀](./img/spiritually_malay/5.jpg)
+<img width="509" height="512" alt="5" src="https://github.com/user-attachments/assets/e0a1f929-ff12-46d0-9d91-dce290acf58f" />
 
 ## 开挂死妈
-![开挂死妈](./img/kaiguasima.jpg)
+<img width="600" height="241" alt="kaiguasima" src="https://github.com/user-attachments/assets/7f8b8426-bb7d-4d33-b1d3-67d7808414d4" />
+
 
 精神马来西亚人认为，笔者在游玩《三角洲行动》时使用了外挂程序是疑似右手残疾的表现，正确的做法是练习枪法。因此使用本项目在《我的世界》中作弊可能会导致右手残疾，在使用本项目进行作弊前，请确认您的右手没有残疾！本项目不会对您的右手残疾付任何责任。
 
 如果您在使用本项目时出现了疑似右手残疾的症状（如右手无力等），请及时关闭键盘声音以避免自己的生物爹对自己进行家暴行为。
 
-[不是我咋掉线了操](./img/不是我咋掉线了操.mp4)
+https://github.com/user-attachments/assets/c336ca71-4898-4a9c-9119-4893b17661d9
+
 
 ## 我有抑郁症
 众所周知，精神马来西亚人患有严重的精神疾病。结合此前精神马来人对其他亲朋好友的倾诉，笔者得知精神马来西亚人曾在群直播自己使用作弊客户端游玩《我的世界》游戏。但是突然下播，在长达半个小时的等待时间后，精神马来西亚人称自己由于键盘声音过大而惨遭家暴。
 
-![自残](./img/zican_1.jpg)
+<img width="500" height="170" alt="zican_1" src="https://github.com/user-attachments/assets/48e87adf-12a9-48cd-975b-cf77ad76c2dd" />
+
 
 因此精神马来西亚人长期通过自残、过量使用药物等行为缓解自己长期惨遭家暴的事实。
 
-![嗑药](./img/keyao_4.jpg)
+<img width="500" height="163" alt="keyao_4" src="https://github.com/user-attachments/assets/09cfd1ca-acd1-4950-a170-e7a34a452d31" />
 
-![嗑药](./img/keyao_3.jpg)
+<img width="500" height="195" alt="keyao_3" src="https://github.com/user-attachments/assets/dfa46e76-c522-44a8-b412-3da417d919d9" />
 
-![嗑药](./img/keyao_2.jpg)
+<img width="500" height="348" alt="keyao_2" src="https://github.com/user-attachments/assets/91e966ce-27a0-44de-858a-fa8da37d9454" />
 
-![跟风](./img/keyao_1.png)
+<img width="293" height="255" alt="keyao_1" src="https://github.com/user-attachments/assets/65e24a79-75eb-437d-8253-4c2cf9947491" />
+
 
 或许是出自自卑， 精神马来西亚人在公开时称嗑药是跟风行为。对于精神马来人对过量使用药物的态度，笔者暂且蒙在鼓里。
 
 ## 大孝子
 可能由于常年的家暴，导致精神马来西亚人的认知出现了错乱。又或许是长期多次的家暴导致精神马来西亚人患上了[创伤后应激障碍](https://zh.wikipedia.org/wiki/%E5%89%B5%E5%82%B7%E5%BE%8C%E5%A3%93%E5%8A%9B%E7%97%87)，精神马来西亚人认为自己**滚刀爹妈**。笔者尚不明确精神马来西亚人所述的滚刀爹妈是何意味，但是笔者希望精神马来西亚人早日康复。
 
-![大孝子](./img/xiaozi_1.png)
-![大孝子](./img/xiaozi_2.png)
-![大孝子](./img/xiaozi_3.png)
+<img width="300" height="465" alt="xiaozi_1" src="https://github.com/user-attachments/assets/d064ac09-f060-4ab9-aa4e-b3853fe4c9b3" />
+<img width="300" height="465" alt="xiaozi_2" src="https://github.com/user-attachments/assets/5a0c13c0-2ce9-4cb5-95f9-322b2c72e6cb" />
+<img width="300" height="465" alt="xiaozi_3" src="https://github.com/user-attachments/assets/ac2b504a-ac4c-4aed-8148-b66d935a75a3" />
+
 
 
 ## 发送低保
-![低保](./img/dibao.png)
+<img width="356" height="500" alt="dibao" src="https://github.com/user-attachments/assets/f3f7d842-749b-42f0-91c1-170a2ddf7691" />
 
 当精神马来西亚人急眼时，将会自动查询你爹妈的户籍并且强制向你爹妈发送两份低保。
 
@@ -102,7 +109,7 @@
 设区的市可根据各自实际和财力条件，对家庭财产状况规定进行细化和调整，增加的支出由当地筹集安排。
 ```
 
-![个人所得税](./img/proof.jpg)
+<img width="500" height="396" alt="proof" src="https://github.com/user-attachments/assets/af58918c-a70e-4afb-83d7-27aed2ed1bf5" />
 
 但仅笔者一人，2026年个人所得税申报仅有约四十万人民币，笔者家庭明显符合不纳入低保范围的条件。笔者暂且不清楚精神马来西亚人向笔者全家发送低保的动机，可能是因为精神马来人惨遭家暴精神错乱致使其认为拥有低保是一件非常令人羞耻的事情。笔者建议精神马来西亚人早日纠正错误想法。
 
@@ -113,11 +120,12 @@
 
 当Zen被注入后，会自动触发截图并上传至服务器。精神马来西亚人回应如下：
 
-![Screenshot Response](./img/screenshot-response.png)
+<img width="400" height="318" alt="screenshot-response" src="https://github.com/user-attachments/assets/f8d52661-b969-4996-bbfd-019ae57af2e8" />
 
 由于精神马来西亚人从小父母双亡，无父无母的精神马来西亚人自幼脑回路不正常。他认为虽然自己没有说自己的外挂会截图，但是由于自己截图，并没有遭到用户反对，所以所有用户都心甘情愿被截图**全屏**并上传到其服务器上。当然不排除所有Zen客户端用户都喜欢把身上的衣服脱掉然后去本地人最多的广场裸舞的可能性。
 
-![Snapshot](./img/meme.jpeg)
+<img width="500" height="575" alt="meme" src="https://github.com/user-attachments/assets/43be1184-1cb1-4865-9b98-26221e64528e" />
+
 
 对此，笔者综合精神马来西亚人由于半夜玩电脑惨遭自己生物爹家暴的事实猜测：精神马来西亚人的生物爹和生物妈可能对精神马来西亚人的控制欲极强，因此精神马来西亚人的生活空间内可能存在十万甚至九万个摄像头，对精神马来西亚人的生活进行了无孔不入的监控。因此，精神马来西亚人在拉屎、自慰、睡觉、上课时都时时刻刻被监控，所以自然认为截图用户是正常且合理的行为。
 
@@ -128,13 +136,13 @@
 
 以下是对该方法的Trace。
 
-![Screenshot Trace](./img/screenshot-trace.png)
+<img width="1634" height="63" alt="screenshot-trace" src="https://github.com/user-attachments/assets/8ce18557-2045-4bd4-93a7-d03a044def7a" />
 
 可见，此方法调用了 `java/awt/Robot;createScreenCapture(Ljava/awt/Rectangle)`，会将用户的**全屏**截图后返回。
 
 继续向下追踪，发现其新建了 `iIiIiIiIIIiIiI/ɿ` (`CPacketSystemInfo`) ([Mapping](./mapping/zen.mapping#L2552)) 对象，我们对该类反编译，发现精神马来西亚人妈妈死掉了所以忘记删除Lombok自动生成的`@ToString`方法，因此惨遭Claude还原。
 
-![CPacketSystemInfo](./img/CPacketSystemInfo_ToString.png)
+<img width="350" height="402" alt="CPacketSystemInfo_ToString" src="https://github.com/user-attachments/assets/c92127ef-37dc-4411-8c2f-d083fcaecd1c" />
 
 此包会上传用户处理器信息、模组列表、虚拟机参数、系统名称、上报截图等信息，但笔者认为除截图外，其他信息收集在**提前告知用户的前提下**是合理的，因此并无不妥。虽然精神马来西亚人没有提前告知用户。
 
@@ -148,37 +156,37 @@
 
 *以上不是全部*
 
-![RCE](./img/RCE.png)
+<img width="800" height="53" alt="RCE" src="https://github.com/user-attachments/assets/4ccbcc06-2a92-407a-8bf6-b450454fd7fa" />
 
 对于这些后门，精神马来西亚人作此解释。
 
-![Backdoor](./img/backdoor.png)
+<img width="400" height="309" alt="backdoor" src="https://github.com/user-attachments/assets/9dbf89d7-a813-467e-bad1-5662164f8a47" />
 
 精神马来西亚人称这些后门全部都是由**夏天233**制造，并非自己。并且这些后门并没有实现，所以可能是由于精神马来西亚人产生幻觉导致笔者抓到了Trace。而且并不能解释同是一套Network系统，为什么上传截图包实现了但其他方法没有实现。
 
 其后其在[视频](https://www.bilibili.com/video/BV147L86TEEZ)中表示，是服务器在迁移时没有实现，而不是客户端没有实现。同时，精神马来西亚人在视频中表示*没有功能*，但是在QQ群中表示*是夏天233写的*。
 
-![Backdoor](./img/backdoor_2.png)
+<img width="500" height="153" alt="backdoor_2" src="https://github.com/user-attachments/assets/dc84e903-4b70-4378-89aa-6152608f78f1" />
 
 由于精神马来西亚人嘴硬，所以到底具体有没有实现，笔者暂且蒙古。
 
 ### 父子相爱相杀
 
-![锦良炸弹](./img/xujinliang_bomb.png)
+<img width="500" height="500" alt="xujinliang_bomb" src="https://github.com/user-attachments/assets/de4b8a2d-a549-43c3-9f86-03a0608ea7b4" />
 
 在很久之前，作为知名野狗的许锦良曾对精神马来西亚人进行过攻击：许锦良认为精神马来西亚人是他儿子，去日本是为了成为慰安妇，抚平自己被家暴的过去。
 
-![十进十出](./img/join_and_quit.jpg)
+<img width="300" height="574" alt="join_and_quit" src="https://github.com/user-attachments/assets/f98bd30e-198f-46d3-8250-c2c0c2cb5a8b" />
 
 但很明显，在本项目发布后，许锦良对OpenZen交流群创下了高达十进十出的历史记录。笔者在此猜测，精神马来西亚人曾因为自己半夜玩电脑由于敲键盘声音过大惨遭家暴的事情中迟迟无法走出阴影，因此自小时便缺失来自生物爹的父爱。而许锦良称精神马来西亚人为儿子，因此刚好补上了自己缺失的父爱这一块，私下便偷偷称许锦良为自己的父亲。自始，二人幸终。
 
 笔者在惨遭许锦良十进十出狗叫时，认为许锦良可能已经完成[前脑叶白质切除术](https://zh.wikipedia.org/wiki/%E8%84%91%E7%99%BD%E8%B4%A8%E5%88%87%E9%99%A4%E6%9C%AF)，许锦良坚持认为两张照片是同一个人，对此许锦良掏出了以下证据：
 
-![Gemini Pro](./img/gemini.png)
+<img width="203" height="500" alt="gemini" src="https://github.com/user-attachments/assets/3e54031f-a610-4dec-bc6d-4d576bc72d70" />
 
 由此可见，许锦良并没有思考的能力，结合自己亲儿子精神马来西亚人患有多种精神疾病的事实与精神马来西亚人认为Telegram查询机器人的事实，证实了笔者在前提到的前脑叶白质切除术。笔者在此希望许锦良父子能够早日康复。
 
-![Xinxin](./img/xinxin.png)
+<img width="300" height="103" alt="xinxin" src="https://github.com/user-attachments/assets/1e23b412-ae54-487d-bfd0-590107f75afb" />
 
 但精神马来西亚人在QQ群中指出，欣欣使用过外挂后门远程读取他人文件。不知作为德州骡子的许锦良见自己的亲生儿子如此指认自己作何感想。
 
